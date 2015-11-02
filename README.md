@@ -1,3 +1,3 @@
 # Under construction:
-# Will be ready before the end of the course.
+# Will be ready by end of first week of November.
 # Thank you for your patience.
